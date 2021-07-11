@@ -1,1 +1,0 @@
-## **NESS Academy GitHub repository**
